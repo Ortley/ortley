@@ -1,6 +1,4 @@
-# HALF LIFE!!!!!!!!!!!!!!!
-i love half life
-&#955;  \<3
+Planning something big... trust
 
 <!-- ## things im doing:
 - my website https://ortley.github.io/
